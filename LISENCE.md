@@ -1,0 +1,1 @@
+Licence from Belarusskaya Obshaga
